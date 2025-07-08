@@ -10,4 +10,4 @@
 
 我们每日更新丰富影视资源，保证内容多样且高清。平台专注于提供无码及中字版本，满足不同用户需求。资源分类详细，包括剧情、制服、角色扮演等多种类型，方便快速搜索。无需注册，无广告干扰，纯净流畅的观看体验。更有热播榜单和用户推荐，助您轻松找到高评分作品，提升观影质量。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/fkt20250807/fkt4 ）</span>
